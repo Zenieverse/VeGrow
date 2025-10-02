@@ -3,6 +3,7 @@ VeGrow — Decentralized dApp Incubator &amp; Reward Hub. A permissionless incub
 
 
 
+
 Problem, solution & why blockchain
 Problem
 Early-stage dApps struggle to find users, measurable support, and funding.
