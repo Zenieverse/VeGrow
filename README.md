@@ -3,6 +3,8 @@ VeGrow — Decentralized dApp Incubator &amp; Reward Hub. A permissionless incub
 
 https://vimeo.com/1123776951
 
+https://g.co/gemini/share/697b4c1d597a
+
 
 Problem, solution & why blockchain
 Problem
