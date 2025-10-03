@@ -5,6 +5,8 @@ https://vimeo.com/1123776951
 
 https://g.co/gemini/share/697b4c1d597a
 
+https://g.co/gemini/share/6c573baaed4e
+
 
 Problem, solution & why blockchain
 Problem
