@@ -7,6 +7,7 @@ https://g.co/gemini/share/697b4c1d597a
 
 https://g.co/gemini/share/6c573baaed4e
 
+https://poe.com/VeGrow
 
 Problem, solution & why blockchain
 Problem
